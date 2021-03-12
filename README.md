@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @huyxd
 
 *Follow my socials*
-twitter.com/zuofx \n
+twitter.com/zuofx &
 twitch.tv/zuofx
 * please *
 
