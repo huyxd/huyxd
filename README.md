@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @huyxd
+- 👋 Hi, I’m @zuofx
 
-*Follow my socials*
-http://twitter.com/zuofx &
-http://twitch.tv/zuofx
-* please *
+https://zuofx.xyz/links
+contact@zuofx.xyz
+zuo#1443
 
 <!---
 --->
